@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on various projects
-- 📫 You can reach me through, aohjac02@gamil.com
+- 📫 You can reach me through, aohjac02@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: I'm fun, pun intended. lol.
 
